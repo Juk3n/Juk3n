@@ -1,6 +1,6 @@
 # Hi there, I'm Adrian! 👋
 
-- 📫 How to reach me: **adrian.duraj@onmail.com**
+- 📫 How to reach me: **adrian.kamil.duraj@protonmail.com**
 
 ## My Skills 🧠
 
